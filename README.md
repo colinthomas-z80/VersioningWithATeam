@@ -7,3 +7,5 @@ Jakob Lamb - Most of my time was spent at work this summer. I was able to change
 
 Duan Rollins - I spent most of the summer working as well. I worked for my local Walmart Neighborhood Market in Chicago, IL. I was working a lot to get a car for the upcoming school year and I succeeded in doing so. If I wasn't working, I would either be playing my Ps4 or spending time with my girlfriend; I would also be learning more about Web Developement so I can pursue a career into it. I really like web programming because you can do so much in terms of creativity. <br /><br />
 
+Matthew Schrag - I spent most of the summer working at my local Culvers. As it turned out we had some of our busiest weeks since we opened this past summer so it was a fairly tiring job at times. Outside of work I took web programming online over the summer. I also started to learn how to play the ocarina in my free time. I also finally started to work on getting my license after having a permit for a while. <br /><br />
+
